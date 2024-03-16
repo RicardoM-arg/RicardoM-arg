@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RicardoM-arg 
+- 👀 I’m interested in contact another stuff members of Wolr
+- 🌱 I’m currently learning about digital marketing 
+- 💞️ I’m looking to collaborate on Worldcoin org
+- 📫 How to reach me ricardodariomuzzolon1@hotmail.com
